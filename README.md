@@ -21,3 +21,4 @@ I haven't decided yet if I ultimately want to pursue clinical or research work w
   - therapeutic implications
 - **music**
   - *less related to the other topics, but I think things like perfect pitch and the individual differences in musicality are so cool!*    
+
